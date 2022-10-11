@@ -1,0 +1,5 @@
+- 🦋 Hi, I’m Oliver!
+- 🪱 I’m interested in Computer Science, History, and Creative Media
+- 🌱 I’m currently learning Java and SwiftUI
+- 💞️ I’m working on a personal project utiliing pluralkit's API
+- 📫 You can find me on instagram as literally_demi or on discord at Stanley ?!#2845
