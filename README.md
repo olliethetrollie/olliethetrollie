@@ -1,5 +1,6 @@
 - 🦋 Hi, I’m Oliver!
 - 🪱 I’m interested in Computer Science, History, and Creative Media
 - 🌱 I’m currently learning Java and SwiftUI
+- 🍭 I'm autistic with ADHD and have a severe form of Auditory Processing Disorder
 - 💞️ I’m working on a personal project utilizing pluralkit's API
-- 📫 You can find me on instagram as literally_demi
+- 📫 You can find me on instagram as literally_demi. Most of my other social media go under the same username or variation!
