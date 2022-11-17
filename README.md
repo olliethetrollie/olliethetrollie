@@ -7,3 +7,4 @@
 - 🍭 I'm autistic with ADHD and have a severe form of Auditory Processing Disorder
 - 💞️ I’m working on a personal project utilizing pluralkit's API
 - 📫 Most of my social media go under olliethetrollie!
+> **This is Kangaroo court, your honor.**
