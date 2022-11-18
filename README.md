@@ -22,3 +22,7 @@ Je suis autiste et j'ai des intérêts craiment forts. Dèa novembre, mon intér
 Right now, I plan on pursuing a small game idea I have. It will most likely be written in Java.
 
 En ce moment, je prévois de poursuivre une petite idée de jeu que j'ai. Il sera probablement écrit en Java.
+
+🧫
+
+Mon français est ne bon pas. Je suis désolé pour erreurs de traduction. Je fais de mon mieux.
