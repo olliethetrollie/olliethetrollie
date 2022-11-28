@@ -26,3 +26,5 @@ En ce moment, je prévois de poursuivre une petite idée de jeu que j'ai. Il ser
 🧫
 
 Mon français est ne bon pas. Je suis désolé pour erreurs de traduction. Je fais de mon mieux.
+
+![u crying?](https://media.discordapp.net/attachments/984172487795425310/1046804949490745456/48e45ad957c7891910fba154075632af.jpg)
