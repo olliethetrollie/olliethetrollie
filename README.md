@@ -1,4 +1,8 @@
 # Hub Sweet Hub
 > **This is kangaroo court, your honor.**
 
-under construction lol
+![](https://media.discordapp.net/attachments/1046652900899819623/1059864160168583208/image0.png)
+
+- Autistic Highschooler
+- Planning to go to the U of U for an engineering or computer science degree
+- Genderfluid with preference for masc nouns
