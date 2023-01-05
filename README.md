@@ -6,3 +6,4 @@
 - Autistic Highschooler
 - Planning to go to the U of U for an engineering or computer science degree
 - Genderfluid with preference for masc nouns
+- Working on a personal game called "Mittens"
