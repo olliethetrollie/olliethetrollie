@@ -10,5 +10,5 @@
 
 > **No jumping in the sewers ^^**
 
-- Hyperfixations: Rick and Morty
+- Hyperfixations: Rick and Morty, South Park
 - Special Interests: Physics, Science, Quantum Physics, Space, Engineering
