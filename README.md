@@ -1,5 +1,5 @@
 # Hub Sweet Hub
-> **This is kangaroo court, your honor.*
+> **This is kangaroo court, your honor.**
 
 - Autistic Highschooler
 - Planning to go to Weber University for a computer science degree
