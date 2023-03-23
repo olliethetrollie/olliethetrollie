@@ -6,4 +6,4 @@
 - Genderfluid with preference for masc nouns
 - Working on a personal game called "Mittens"
 
-Special Interests: *Space, Quantum Mechanics & Quantum Physics, Game Development*
+Special Interests: *Space, Quantum Mechanics & Quantum Physics, Game Development, Markdown and UNICODE, Psychology*
